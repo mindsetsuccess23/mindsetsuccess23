@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Laurence Edwrad Donelson lll @mindsetsuccess23
 - 👀 I’m interested in the digital infrastructure to help make the physical instructure better. Technology interests me. 
-- 🌱 I’m currently learning Networking + Pathway ...
+- 🌱 I’m currently learning Networking + Pathway. Whats on the checklist for now 
 - 💞️ I’m looking to collaborate in detail. I am open to the full spectrum of whatever it takes to upgrade.
 - 📫 How to reach me mindsetsuccess23@gmail.com
 
